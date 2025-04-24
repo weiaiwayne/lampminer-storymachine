@@ -1,57 +1,53 @@
-## Sesame Street News: Brought to you by the letter "N" for News!
+**Sesame Street News – Brought to you by the Letter “E” (for Empathy!)**
 
-**(Scene opens with Elmo standing at a miniature news desk with the words "Sesame Street News" on it. Cookie Monster and Abby Cadabby are sitting in the audience.)**
+**(Opening scene: Elmo, Cookie Monster, and Abby Cadabby are gathered around a cardboard news desk. Oscar the Grouch is nearby in his trash can, grumbling.)**
 
-**Elmo:** Welcome, everyone, to Sesame Street News! Elmo is your anchor-monster today! Ooh! We have lots of news to share, even if it’s… sometimes a little tricky.
+**Elmo:** Welcome, everyone, to Sesame Street News! Today, we're talking about things happening all over the world!
 
-**(Cookie Monster raises his hand enthusiastically.)**
+**Cookie Monster:** (Eyes wide) World? Does world have cookies?
 
-**Cookie Monster:** Can we eat the news?
+**Abby Cadabby:** Maybe! But today, we’re talking about other important things, Cookie Monster. Like how sometimes people have different ideas about what's fair.
 
-**Elmo:** (Chuckles) No, Cookie Monster! We can't eat the news. We listen to the news, and then we think about it.
+**Elmo:** That’s right, Abby! Like, some people think it’s good to help others even if it takes a little longer, like cleaning a customer’s computer extra shiny.
 
-**Abby Cadabby:** Ooh, what's the first news story, Elmo?
+**Cookie Monster:** Shiny computers! Me like!
 
-**Elmo:** Okay! First, Elmo heard that someone was looking for their brother, and they finally found him! That's wonderful. Elmo thinks families are very important!
+**Elmo:** But other people think it's better to be super-fast and charge a little extra to do those extra things. Both ideas are okay, but it can be tricky when people disagree!
 
-**(A short animated clip shows a family reuniting with lots of hugs.)**
+**Abby Cadabby:** Exactly! And sometimes that happens in big businesses, too. We heard that some bosses want to be really fast and make lots of money. And that’s…okay!
 
-**Elmo:** Next! Elmo heard that someone called Mr. Trump is talking about two countries called Canada and the US. He thinks they're good neighbors. Sometimes, neighbors disagree on things, but it's important to be kind to each other! Elmo loves his neighbors on Sesame Street.
+**Elmo:** But it’s also good to remember to be kind and helpful, even if it costs a little extra time. Like when you’re building houses! Speaking of building, we heard that it's been a little bit harder to build new houses lately.
 
-**(Bert and Ernie wave from their window in the background.)**
+**Abby Cadabby:** Oh no!
 
-**Elmo:** Now, Cookie Monster, this one's a little complicated. Sometimes, countries put extra costs on things they buy from other countries. It’s like when you buy cookies at Hooper's store. If you want to buy cookies from another store far away, it might cost more because of those extra costs. Mr. Trump is talking about these costs for cars from Canada.
+**Elmo:** Yeah, it might be because things cost a little bit more to build right now. When grown-ups take out a loan (to buy something) they promise to pay it back, and it looks like some folks are having a hard time with those payments.
 
-**Cookie Monster:** (Eyes widening) More costs mean fewer cookies!
+**Cookie Monster:** What’s loan? Does it taste like cookie?
 
-**Elmo:** It can mean things cost more! Which is why it’s important for leaders to be fair and think about everyone.
+**Elmo:** Not really, Cookie Monster. It's like borrowing something and promising to give it back later. And sometimes, people have trouble paying it back. That can make things tricky for everyone.
 
-**Abby Cadabby:** What else, Elmo?
+**Abby Cadabby:** And we also heard that some people in different countries are disagreeing, too!
 
-**Elmo:** Elmo heard there was fighting in a far-away place called DR Congo. But the good news is they said they'll stop fighting and talk instead! Talking and listening is always a good idea! Like when Oscar is grumpy, we try to talk and cheer him up.
+**Elmo:** Yeah, they're talking about things like… tariffs! Tariffs are like a little fee you pay when you trade toys with someone in another town. Sometimes, people disagree about how much that fee should be.
 
-**(Oscar pops out of his trash can, scowls, and slams the lid shut.)**
+**Cookie Monster:** Fee? Me no like fee! Me want cookies!
 
-**Elmo:** Okay, now for something a little tricky, in the United States, people need homes to live in! Elmo is happy to live on Sesame Street! Elmo heard that not as many new homes were built this year. That makes it harder for everyone to find a place to live. Building takes hard work, and Elmo believes everyone should have a safe place to live and to create a family.
+**Elmo:** Well, sometimes those fees can help us do important things, like build schools or help people who need it.
 
-**Abby Cadabby:** Oh, that’s sad.
+**Abby Cadabby:** And sometimes, countries have to talk about really big things, like where people can live and how people treat each other! It's important to be kind and fair to everyone, no matter where they come from.
 
-**Elmo:** It is a little sad, Abby. But it also means builders need to work even harder to build more homes!
+**Elmo:** That's right! And sometimes, even when people disagree, they can talk it out. Like we heard that some people in one place are going to try really hard not to fight and keep talking!
 
-**Cookie Monster:** Speaking of work, me work hard to eat cookies!
+**Oscar the Grouch:** (Pops up from his can) Talking? Ugh! Why can't everyone just be grumpy like me?
 
-**Elmo:** Elmo also heard that some people, called Gen Z, are saying that some older people don't understand how hard they work! Sometimes, grown-ups and younger people see things differently. It's important to listen to each other and be kind.
+**Elmo:** Because being grumpy all the time isn't very fun, Oscar! It's much better to be kind and helpful, even when things are hard! And to talk with other people!
 
-**(A short animated clip shows a child and an adult working together, helping each other.)**
+**Abby Cadabby:** Remember friends, even though grown-up news can be complicated, the most important thing is to be kind, helpful, and to always try to understand each other.
 
-**Elmo:** And last, people are also talking about money, Elmo heard that some people are selling some stocks in the U.S. Stock is like owning a tiny little piece of a company! Elmo doesn't know what to think about that!
+**Elmo:** That's right! And now, it's time for… Super Grover to tell us about… SOMETHING ELSE!
 
-**Abby Cadabby:** Whew! That was a lot of news, Elmo!
+**(Super Grover crashes into the set in a cape and helmet.)**
 
-**Elmo:** It was! Sometimes, the news can be confusing. But remember, even when things seem tricky, it’s important to be kind, listen to each other, and work together to make the world a better place!
+**Super Grover:** Super Grover is here to… wait… what am I here to do?
 
-**Cookie Monster:** And eat cookies!
-
-**Elmo:** (Laughing) And maybe eat a cookie, Cookie Monster! That's all for Sesame Street News today! See you next time!
-
-**(Elmo waves goodbye as the theme music plays.)**
+**(Elmo, Abby, and Cookie Monster giggle as the scene fades out.)**
